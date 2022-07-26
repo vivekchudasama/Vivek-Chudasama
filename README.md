@@ -6,7 +6,7 @@
 I've been currently Working as freelancer doing great in creative field of web designing</b><br>
 💻I am a <b>Web Designer</b> as well as an 📱<b>aspiring Web Developer</b><br>
 👨🏻‍💻 My Website 
-📝✏️I write <b>Tech</b> related articles on <b>[Blog](https:blog.vivekchudasama.com)
+📝✏️I write <b>Tech</b> related articles on <b>[Blog](https://blog.vivekchudasama.com)
 
 
 ## _Here Is What I'm Working On👨‍💻_
