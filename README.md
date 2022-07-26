@@ -5,7 +5,7 @@
 # _I'm Vivek Chudasama_
 I've been currently Working as freelancer doing great in creative field of web designing</b><br>
 💻I am a <b>Web Designer</b> as well as an 📱<b>aspiring Web Developer</b><br>
-👨🏻‍💻 My Website 
+👨🏻‍💻 My Website [Vivek Chudasama](https://vivekchudasama.com) </b><br>
 📝✏️I write <b>Tech</b> related articles on <b>[Blog](https://blog.vivekchudasama.com)
 
 
